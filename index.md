@@ -10,3 +10,9 @@ Er kommt durch Zufall Kontakt zu der Drogenszene, in der einer seiner ehemaligen
 * Liebt seine Familie
 * Chemielehrer
 * Drogendealer
+
+Heisenbeg sagte:
+
+> Jessie, du bist ein Drogendealer
+> und wirst schlimm enden.
+
